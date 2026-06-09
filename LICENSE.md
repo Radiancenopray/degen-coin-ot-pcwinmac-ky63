@@ -1,4 +1,4 @@
-# 
+# Advanced degen coin sniper bot tools for Mac OS | Automatic degen coin sniper bot tools for PC Windows. Featuring multi-chain support and volatility measurement — optimized for maximum performance on every platform.
 
 
 
